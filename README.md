@@ -1,1 +1,0 @@
-# Trepazoid-programming
